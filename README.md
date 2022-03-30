@@ -1,5 +1,3 @@
-This is the jimi henrix tribut page
-
-
+This is the Jimi Henrix Tribut Page
 
 Enjoi!
